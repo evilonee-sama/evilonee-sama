@@ -1,7 +1,6 @@
                                             You probably think im going to eat your head or something dont you
                                                             instead of that lets play a game...
-                                                                          
-                       ![kiwygiwycha](https://github.com/user-attachments/assets/05c82812-40b3-4b23-aa62-608c8580670e)
-
+                              <img src="https://https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExZGR6dXc4MDAwNDdrajJzZnJ5dHV3OW9zdG95d21lMWlpdHhmcDJhMCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/1lsUVZZMVyueHZywMq/giphy.gif"/>
+                       
 
 
